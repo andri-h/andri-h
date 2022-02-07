@@ -14,7 +14,7 @@ A short overview of what I use, to make my life more sustainable. I know, that I
 
 ### 💰 Financial
 - Only buy things you really need and replace only things which are broken and unrepairable.
-- [neon green](https://www.neon-free.ch/en/neon-green), a bank account where you get 5 years warranty extension for each electorincal device and they plant a tree for each 100.- CHF spent. With the code 'C00KY3' you get 10.- CHF and a free mastercard.
+- [neon green](https://www.neon-free.ch/en/neon-green), a bank account where you get 5 years warranty extension for each electronic device and they plant a tree for each 100.- CHF spent. With the code 'C00KY3' you get 10.- CHF and a free mastercard.
 - Sustainable investments with the help of ESG indices by [SIX](https://www.six-group.com/en/products-services/the-swiss-stock-exchange/market-data/indices/esg-indices.html)
 
 ### 🧼 Cosmetics
