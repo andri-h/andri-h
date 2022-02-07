@@ -8,9 +8,11 @@
 
 ## My recomondations to live a more sustainable and environment friendly life
 A short overview of what I use, to make my life more sustainable. I know, that I don't live a sustainable life, but I try to improve myself repeatedly. 
+
 ### 💻 During my daily life as a software engineer
 - use [ecosia.org](https://ecosia.org) as a search engine and plant trees all over the world with each search
 - set [oceanhero.today](https://oceanhero.today) as a start page. With every visit you will help them removing plastic from the ocean (platic bank and waste free oceans)
+- remove CO₂ from the air with [climeworks](https://climeworks.com/invitation/gqamVGqK)
 
 ### 💰 Financial
 - Only buy things you really need and replace only things which are broken and unrepairable.
