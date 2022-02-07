@@ -22,7 +22,7 @@ A short overview of what I use, to make my life more sustainable. I know, that I
 - With [klaeny](https://klaeny.de/a/refer-a-friend/redeem/iw5vyq2mrueuymmxotgwzkloqykql6ieo97laqgp/5328) you can reduce your plastic consumption for cleaning utilities. 
 
 ### 🥘 Food
-- [Planted)[https://www.eatplanted.com] is in my view even better for certain dishes than meat. It is based on natural ingredients and yummy!
+- [Planted](https://www.eatplanted.com) is in my view even better for certain dishes than meat. It is based on natural ingredients and yummy!
 - Buy local, organic and seasonally!
 
 ### 👕 Faishon
