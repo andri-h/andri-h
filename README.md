@@ -28,6 +28,7 @@ In general:
 - Swiss made, honest, natural and vegan cosmetics made by [No Bullsh!t](https://nobullshit.care?referral_code=98B3ppmubVnbLbWy)
 - Organic, natural, vegan, cruelty free and plastic free personal care products from [Ben & Anna](https://benanna.ch)
 - With [klaeny](https://klaeny.de/a/refer-a-friend/redeem/iw5vyq2mrueuymmxotgwzkloqykql6ieo97laqgp/5328) you can reduce your plastic consumption for cleaning utilities. 
+- [Junglück](http://rwrd.io/o9qdozs) Natural ingredients. Glass instead of plastic. 1 product = 1 tree. 100% Vegan. No additives.
 
 ### 🥘 Food
 - [Planted](https://www.eatplanted.com) is in my view even better for certain dishes than meat. It is based on natural ingredients and yummy!
