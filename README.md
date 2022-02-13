@@ -29,6 +29,7 @@ In general:
 - Organic, natural, vegan, cruelty free and plastic free personal care products from [Ben & Anna](https://benanna.ch)
 - With [klaeny](https://klaeny.de/a/refer-a-friend/redeem/iw5vyq2mrueuymmxotgwzkloqykql6ieo97laqgp/5328) you can reduce your plastic consumption for cleaning utilities. 
 - [Junglück](http://rwrd.io/o9qdozs) Natural ingredients. Glass instead of plastic. 1 product = 1 tree. 100% Vegan. No additives.
+- [Leaf](https://leafshave.com) produces an allmetal shaver which can be used with normal blades. Good for your wallet and for the planet!
 
 ### 🥘 Food
 - [Planted](https://www.eatplanted.com) is in my view even better for certain dishes than meat. It is based on natural ingredients and yummy!
@@ -46,6 +47,7 @@ In general:
 - Don't use synthetic pesticides
 - Give insects a home, like [Wildbiene + Partner](https://wildbieneundpartner.ch)
 - Create a insect friendly garden / balcony, here are some tips from [WWF CH](https://www.wwf.ch/de/stories/biodiversitaet-foerdern-auf-dem-balkon-und-im-garten)
+- Have a look at the product range from [Waschbär](https://www.waschbaer.ch/)! They sell a lot of usefull environment friendly products!
 - If you plan for a new bathroom, consider a shower with heat recovery like [Joulia SA](https://joulia.com) from Switzerland.
 - You need a new roof, or the current one has to be fixed? Consider a solar system. There are beautiful roof-integrated systems like MATCH from [megasol](https://megasol.ch) and MegaSlate from [3S Solar Plus](https://3s-solarplus.ch).
 
