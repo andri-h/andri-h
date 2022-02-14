@@ -28,6 +28,7 @@ In general:
 - Swiss made, honest, natural and vegan cosmetics made by [No Bullsh!t](https://nobullshit.care?referral_code=98B3ppmubVnbLbWy)
 - Organic, natural, vegan, cruelty free and plastic free personal care products from [Ben & Anna](https://benanna.ch)
 - With [klaeny](https://klaeny.de/a/refer-a-friend/redeem/iw5vyq2mrueuymmxotgwzkloqykql6ieo97laqgp/5328) you can reduce your plastic consumption for cleaning utilities. 
+- A similar company like klaeny is [everdrop](http://everdrop.refr.cc/klischeehuhn0k) with a brother product segment (you get 20% of with this link)
 - [Junglück](http://rwrd.io/o9qdozs) Natural ingredients. Glass instead of plastic. 1 product = 1 tree. 100% Vegan. No additives.
 - [Leaf](https://leafshave.com) produces an allmetal shaver which can be used with normal blades. Good for your wallet and for the planet!
 
