@@ -44,6 +44,7 @@ In general:
 - [Nikin](https://prz.io/kPAJ1RpiB) is a swiss fashion label who produces most of the products within europe and plants trees for each sold item.
 - Other labels I like: [Colorful Standard](https://colorfulstandard.ch), [Armedangels](https://www.armedangels.com/), [KnowledgeCotton Apparel](https://knowledgecottonapparel.com) & [Veja Shoes](https://www.veja-store.com)
 - [RRREVOLVE](https://rrrevolve.ch) is a swiss fashion shop (online and offline) with a lot of fair fashion & eco design.
+- [Changemaker](https://changemaker.ch) is a great store for jewelry, other gift ideas, home and fashion. 
 
 ### 🏡 At home
 - Don't use synthetic pesticides
