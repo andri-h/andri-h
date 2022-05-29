@@ -48,7 +48,7 @@ In general:
 
 ### 🏡 At home
 - Don't use synthetic pesticides
-- Give insects a home, like [Wildbiene + Partner](https://wildbieneundpartner.ch)
+- Give insects a home, like [Wildbiene + Partner](https://loox.io/z/NyRlxb3vh)
 - Create a insect friendly garden / balcony, here are some tips from [WWF CH](https://www.wwf.ch/de/stories/biodiversitaet-foerdern-auf-dem-balkon-und-im-garten)
 - Have a look at the product range from [Waschbär](https://www.waschbaer.ch/)! They sell a lot of usefull environment friendly products!
 - If you plan for a new bathroom, consider a shower with heat recovery like [Joulia SA](https://joulia.com) from Switzerland.
